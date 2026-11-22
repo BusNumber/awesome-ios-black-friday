@@ -43,7 +43,6 @@ Picked for this list: deals of 35% or more on iPhone and iPad apps, and 50% or m
 | [Pretty Progress](https://prettyprogress.app/download) | iOS | Beautiful countdown and progress bar widgets to visualise and track your events and deadlines. | 💸 ♾️ **50% OFF** · $59.99 → $29.99 · no code | Nov 20 – Dec 1 |
 | [SinceWhen: Days Since Tracker](https://devapt.com/sincewhen) | iOS | SinceWhen is a one-tap tracker for things you do now and then, like haircuts, meds and oil changes. | 💸 ♾️ **50% OFF** · $59.99 → $29.99 · no code | Nov 20 – Dec 1 |
 | [YumPal](https://elevenapril.com/yumpal) | iOS | Visual food memory journal: snap a meal worth remembering and it lands on a timeline, dated and pinned to where you ate it. | ♾️ **37% OFF** · $29.99 → $18.99 · code `BLACKFRIDAY` | until Nov 30 |
-| [Meanwhile: Couple & BFF Widget](https://apps.apple.com/app/id6817204524) | iOS | Share a photo each hour that lands on your partner's or best friend's home screen widget, with no feed and no ads. From the team behind [Nutrify](https://nutrifytracker.com), an AI calorie tracker. | 💸 **Up to 84% OFF first year of Pro** · $49.99 → from $7.99 · no code (Early Supporter launch offer for new subscribers while spots last: tap "Want to be an early supporter?" on the plans screen) | until Dec 31 |
 
 <p align="right"><a href="#contents">↑ Back to contents</a></p>
 
